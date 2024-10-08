@@ -1,0 +1,1 @@
+# afriq-foot-scout
